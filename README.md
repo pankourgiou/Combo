@@ -1,0 +1,2 @@
+# Combo
+The exact 25 leaves--->are the 25 MIT Media Lab depertment but actually is a whole language so we could combine more as of an idea the Jordan Rudess sculpture/technic we see on this video https://www.youtube.com/watch?v=kWKWoL9JKqY, then the laser style technic  Jean Michel Jarre always uses(You can see here https://www.youtube.com/watch?v=9DlwQJX3qag) and finally skin motion tattoo!!!(You can see me doing this on the issues folder). Let's enjoy future
